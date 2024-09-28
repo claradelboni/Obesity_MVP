@@ -1,0 +1,1 @@
+![Análise de dados e boas práticas - Tipos de peso]([URL_da_Imagem](https://www.google.com/url?sa=i&url=https%3A%2F%2Fopas.org.br%2Fcomo-calcular-imc-formula-classificacao-tabela-e-imc-infantil%2F&psig=AOvVaw3xbvwBeL8zZ_qYUhlpHDHl&ust=1727577577586000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCKiJwZ_O5IgDFQAAAAAdAAAAABAW))
